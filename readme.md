@@ -7,7 +7,7 @@ Various other formats include food recipes, travel blogs, etc.
 
 
 
-All rights and permissions are reserved!(Sachi baat hai!)
+All rights and permissions are reserved!
 Developer Contact Info:
 
-@nikkigupputhebest87007
+@ng
